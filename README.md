@@ -4,3 +4,5 @@
 
 テストだょ☆
 マークダウンでかけるぞ！
+
+:smile: :smile: :smile: :smile: 
