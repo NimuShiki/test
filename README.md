@@ -6,3 +6,5 @@
 マークダウンでかけるぞ！
 
 :smile: :smile: :smile: :smile: 
+
+# ・。・ｖｖｖｖｖｖ
